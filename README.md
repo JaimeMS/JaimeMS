@@ -17,7 +17,7 @@
 
 - 📫 Contato: **jaime_mendes91@yahoo.com.br**
 
-- 📄 Sobre mim: [www.linkedin.com/in/jaime-mendes-474722106](www.linkedin.com/in/jaime-mendes-474722106)
+- 📄 Sobre mim: [https://www.linkedin.com/in/jaime-mendes-santos/](https://www.linkedin.com/in/jaime-mendes-santos/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
